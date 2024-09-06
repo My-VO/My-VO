@@ -25,10 +25,6 @@ I software engineer based in Île-de-France, France.
 
 Currently, in professional retraining in IT, I am open-minded, I want to discover different languages and architectures in this constantly evolving sector.
 
-To deepen my knowledge, I will be taking training as a Designer Developer in a DevOps environment.
-I am looking for a work-study contract starting on 08/04/2024, for a period of 18 months.
-
-I am rigorous and fully invest myself in achieving my goals.
 </blockquote>
 
 ----  
